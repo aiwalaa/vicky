@@ -1,4 +1,4 @@
-# MaxJankari.Com – Free Mobile Recharge
+# MaxJankari. Com – Free Mobile Recharge
 MaxJankari.Com is an innovative website that offers users the opportunity to earn free mobile recharges by participating in various online activities. Launched with the vision of making mobile connectivity more accessible and affordable, the platform allows users to earn recharge credits that can be used to top up their mobile phones.
 
 The website operates on a simple yet effective model where users complete tasks such as watching videos, taking surveys, downloading apps, and referring friends to earn points. These points can then be redeemed for mobile recharges across various service providers in India. The process is straightforward, user-friendly, and provides a reliable way to save on mobile expenses.
